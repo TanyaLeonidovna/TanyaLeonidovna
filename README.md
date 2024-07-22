@@ -1,6 +1,6 @@
 # I am a PhD student at MSU (Московский государственный университет), and I specialize in psychoanalysis and analytical psychology. 🌼
 
-I also go by the name Tatjana Lukina which is more formal, however, you can use either.. 🙂
+I also go by the name Tatjana Lukina which is more formal, however, you can use either (leonidovna is a patronymic).. 🙂
 
 
 <!--
