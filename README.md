@@ -1,6 +1,6 @@
 # I am a PhD student at MSU (Московский государственный университет), and I specialize in psychoanalysis and analytical psychology. 🌼
 
-I'm a composer and like to play the cello 🙂
+I am also a composer part-time and like to play the cello 🙂
 
 
 <!--
